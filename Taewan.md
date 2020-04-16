@@ -1,2 +1,0 @@
-# Taewan Park
-* Dev mentor

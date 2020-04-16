@@ -1,0 +1,2 @@
+# Junsu Kim
+* Dev newbie
